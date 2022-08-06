@@ -1,0 +1,1 @@
+Estou fazendo o Readme dessa vez em txt pois acredito que esta seja uma forma mais eficiente de o fazer = )
